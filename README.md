@@ -15,5 +15,4 @@
 * 📫 How to reach me: Mail me @dadarsh1001@gmail.com
 * ⚡ I love Playing Video games🎮 including console games🎮, travelling,
 * 🎲 Fun fact: Every time I see a Car/Bike I fall in love❤️ with it.
-
-     >>>>>>>>>> Bye for now 🏃💨 <<<<<<<<<<
+>>>>>>>>>> Bye for now 🏃💨 <<<<<<<<<<
