@@ -10,7 +10,7 @@
 * 🤝 I’m looking for help with Backend Development, AR/VR/MR/XR Developer, Web 3 Developer.
 * 🤔 I’m looking for help with Backend Development.
 * 🛠️ Languages & Tools : C, C++, basics OF Python, HTML, CSS, Bootstrap, UNITY, Blender, Git, GitHub, Excel, MS Office, PowerPoint, Video Editor[Filmora, Kinemaster],                           Canva.
-* 💬 Ask me about HTML, CSS, BOOTSTRAP, & a little bit of JS.
+* 💬 Ask me about HTML, CSS, BOOTSTRAP, & a little bit of JS,
       also about the Food as I love Eating 
 * 📫 How to reach me: Mail me @dadarsh1001@gmail.com
 * ⚡ I love Playing Video games🎮 including console games🎮, travelling,
